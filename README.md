@@ -2,4 +2,4 @@
 
 мой тг 
 
-<a href="t.me/@wN0NAMEw"><img src="https://clck.ru/3PZ5zN" /></a>
+<a href="t.me/@wN0NAMEw">t.me/@wN0NAMEw</a>
